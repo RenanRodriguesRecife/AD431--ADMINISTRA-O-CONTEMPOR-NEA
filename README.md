@@ -1,4 +1,4 @@
-# AD431--ADMINISTRAÇÃO-CONTEMPORÂNEA
+# AD431 - ADMINISTRAÇÃO CONTEMPORÂNEA
 
 Especialistas x Generalista
 
