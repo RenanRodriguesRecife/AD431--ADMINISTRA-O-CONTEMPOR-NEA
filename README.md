@@ -13,3 +13,27 @@ Especialistas x Generalista
 5. Omissão, distorção, sobrecarga de informações pode influenciar as informações na comunicação.
 
 6. Liderança informal pode ser beneficas a organização? (Se estiver alinhada aos valores da organização).
+
+
+========================
+
+
+Custos 
+
+Departamento -> Unidade mínima administrativas
+
+Dep. Produção x Dep. Serviços
+
+Na maioria das vezes o departamento é um centro de custos
+
+Em alguns caso pode existir mais de um centro de custo em um departamento.
+
+Ex: Usando máquinas de várias capacidades produtivas é importante criar um centro de custos para cada máquina.
+
+=================
+
+Criando organizações eficazes 
+
+P 72 - 4
+
+minas de carvão (triste bamforh) - 1951
